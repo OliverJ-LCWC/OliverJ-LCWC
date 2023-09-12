@@ -1,0 +1,4 @@
+- Hello, I’m Oliver
+- I am currently on a Digital Skills course learning how to script
+- I currently enjoy spending my spare time playing computer games and also learning new things.
+- You can contact me via emailing 30077996@lcwc.ac.uk
