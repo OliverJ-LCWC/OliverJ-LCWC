@@ -1,4 +1,4 @@
 - Hello, I’m Oliver
-- I am currently on a Digital Skills course learning how to script
-- I currently enjoy spending my spare time playing computer games and also learning new things.
+- I am currently on a Level 3 Gateway to IT course learning how to script
+- I currently enjoy spending my spare time playing computer games and working at Greggs.
 - You can contact me via emailing 30077996@lcwc.ac.uk
